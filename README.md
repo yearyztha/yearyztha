@@ -1,5 +1,5 @@
 # 💫 About Me:
-👤 beginner dev | learning in public | exploring new tech<br>💻 wanna be UI/UX desainer <br>💬 ask me for<br>✨ another fun fact
+👤 beginner | software anggineer major | exploring new tech and some art<br>💻 wanna be your fav gurl <br>💬 ask me for<br>✨ another fun fact
 
 
 ## 🌐 Socials:
